@@ -74,7 +74,7 @@ We may update this privacy policy from time to time. Continued use of the app co
 ## Contact
 
 For privacy concerns or data deletion requests, contact:
-[Your Email Here]
+isaac.saxonov@gmail.com
 
 ---
 
